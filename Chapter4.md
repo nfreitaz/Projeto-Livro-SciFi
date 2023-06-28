@@ -1,0 +1,3 @@
+# Capítulo 4
+
+Dirigido por Robert Zemeckis e produzido por Steven Spielberg, o filme acompanha McFly em sua acidental jornada de 1985 para o tempo em que seus pais estavam no colégio. Ele percebe a duras penas que toda ação tem consequências na linha temporal. A produção fez com que Michael J. Fox deixasse de ser um coadjuvante em série de TV para ser um astro de Hollywood. Mas o ator quase ficou de fora do grande trabalho de sua carreira. Fox era o plano inicial dos produtores Spielberg e Bob Gale, que requisitaram o ator para a equipe da série Family Ties. O pedido foi negado e então eles tiveram de partir para uma segunda opção: Eric Stoltz. De volta para o futuro;
